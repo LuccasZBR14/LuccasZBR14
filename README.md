@@ -12,7 +12,7 @@ Tenho experiência prática com suporte técnico e rotinas administrativas dentr
 
 Atualmente, venho evoluindo minhas habilidades em programação com foco em Python, desenvolvendo projetos práticos voltados para aplicações reais.
 
-Busco minha primeira oportunidade na área de Tecnologia da Informação.
+Busco oportunidade na área de Tecnologia da Informação para aplicar e evoluir minhas habilidades técnicas.
 
 ---
 
